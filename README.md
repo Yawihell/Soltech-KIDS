@@ -1,0 +1,1 @@
+El proyecto SolTech Kids es una solución innovadora y sostenible que integra paneles solares autolimpiables en áreas recreativas escolares. Diseñado con un enfoque multidimensional, combina generación de energía renovable, protección solar para los estudiantes y educación ambiental.
